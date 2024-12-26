@@ -14,3 +14,5 @@
 - Credit Monitoring
 
 # Why make 3 old hackers believes GitHub belongs to them LOLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL
+
+(3 year old is too hard to read for them and they are techies and quick google translate should be suffice)
